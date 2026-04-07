@@ -17,6 +17,16 @@ There is a pre-installed app called system manager which also might kill apps de
 
   <figure>
     <img src="/assets/img/huawei/huawei_system_manager_2.jpg">
+      ffjffehfhrc
+
+
+
+
+      vdrejeooegekw
+      e
+      d
+      d
+      dudlei
     <figcaption>2. Disable the Smart tune-up feature.</figcaption>
   </figure>
 
